@@ -9,5 +9,5 @@ i dont say much unless spoken to typically, it takes me a bit to warm up to new 
 overall just respect any boundaries i set and we'll be cool<br><br>  
 friend reqs are always off but feel free to ask to add me if we've become more acquainted<br>
      please let me know if theres ever an issue, i need clear and direct communication !<br>
-	  <b>read my rentry</b> for an actual about me, thanks for your time!<br><br>
+	  <b>read my carrd</b> for an actual about me, thanks for your time!<br><br>
   † † †</p>
